@@ -41,6 +41,6 @@ Choosing your travel dates is ultimately a reflection of what your soul is searc
 ### ✨ Conclusion
 Goa doesn't have a "bad" time; it only has different moods. Whether you want to dance under the stars or meditate under the rain, there is a specific window that will feel like it was made just for you.
 
-Before you pack your bags and head to the coast, make sure you align your expectations with the climate. For a deep dive into the seasonal breakdowns, festivals, and travel tips, check out this comprehensive look at the **[Goa Best Time to Visit in 2026](https://wandernovaa.com/goa-best-time-to-visit/)**.
+Before you pack your bags and head to the coast, make sure you align your expectations with the climate. For a deep dive into the seasonal breakdowns, festivals, and travel tips, check out this comprehensive look at the **[Goa Best Time to Visit in 2026](https://thewandernova.com)**.
 
 **Your soulful journey is waiting—you just have to pick the right moment to let it begin.**
